@@ -1,0 +1,4 @@
+gogosi
+faina
+drojdie
+zahar
